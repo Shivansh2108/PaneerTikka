@@ -1,17 +1,20 @@
-# Ingedients
-01. Paneer
-02. Peppers
-03. Tomato
-04. Coriander
-05. Ginger
-06. Garam Masala
-07. Yogurt
-08. Onion
-09. Garlic
-10. Bell pepper
-11. Cumin
-12. Cottage cheese
-13. Curd
-14. Salt
-15. Chili powder
-16. Chaat masala
+# INGREDIENTS
+▢½ cup curd / yogurt, thick
+▢½ tsp turmeric / haldi
+▢1 tsp kashmiri red chilli powder / lal mirch powder
+▢½ tsp coriander powder / daniya powder
+▢¼ tsp cumin powder / jeera powder
+▢½ tsp garam masala
+▢½ tsp kasuri methi / dry fenugreek leaves, crushed
+▢½ tsp chaat masala
+▢1 tsp ginger - garlic paste
+▢¼ tsp ajwain / carom seeds
+▢2 tsp besan / gram flour, dry roasted
+▢1 tbsp lemon juice
+▢salt to taste
+▢3 tsp oil
+VEGETABLES:
+▢½ onions, petals
+▢½ capsicum, red & green, cubed
+▢5 cubes paneer / cottage cheese
+
